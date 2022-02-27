@@ -6,6 +6,7 @@
 - 💞️ I’m looking to collaborate on some new technologies.
 - 📫 How to reach me: sukanyakori26@gmail.com
 -  If got extra time, just love to try new things @diy's
+-  To know more about me just search my name Sukanyakori on google. :)
  
 
 <!---
